@@ -1396,3 +1396,4 @@ The Rufous hummingbird is the most northerly ranging of all hummingbirds.
 - [Fake tears](https://en.wikipedia.org/wiki/Artificial_tears) typically contain some type of cellulose.
 - Fun fact. [Going gluten-free makes you age slower.](https://blog.paleohacks.com/10-ways-to-slow-aging-naturally/) Therefore, gluten is aging. Science.
 - Hemp has little to no THC. Hemp seed has nothing. Other parts of hemp can be used to make CBD oils.
+- I didn't know before that there were [Anti inflammatory juices](https://www.healthlinegate.com/nutrition-wellness/fresh-anti-inflammatory-juices-for-your-health/) which can be a great alternative medicine or remedy. Health Check.
